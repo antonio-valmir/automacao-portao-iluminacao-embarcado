@@ -69,7 +69,7 @@ Tudo isso em **uso real de campo**.
 
 - Hardware e bastidores: **(https://youtu.be/ED8saE1YPnQ)**  
 -  Portão em funcionamento real: **(https://youtu.be/gXUQSP6wGKA)**  
-- Hardware e bastidores: **(https://youtube.com/shorts/80ktLSzktd0)**  
+- Ligando a bomba: **(https://youtube.com/shorts/80ktLSzktd0)**  
 
 ---
 
