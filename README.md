@@ -67,9 +67,9 @@ Tudo isso em **uso real de campo**.
 
 ## 🎥 Vídeos de Demonstração
 
-- Portão em funcionamento real: **(link do vídeo)**  
-- Mapeamento de lâmpadas: **(link do vídeo)**  
-- Hardware e bastidores: **(link do vídeo)**  
+- Portão em funcionamento real: **(link do vídeo](https://youtu.be/ED8saE1YPnQ)**  
+- Mapeamento de lâmpadas: **(link do vídeo](https://youtu.be/gXUQSP6wGKA)**  
+- Hardware e bastidores: **(https://youtube.com/shorts/80ktLSzktd0)**  
 
 ---
 
